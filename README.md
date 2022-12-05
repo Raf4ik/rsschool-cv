@@ -1,1 +1,1 @@
-# rsschool-cv
+https://raf4ik.github.io/rsschool-cv/cv
